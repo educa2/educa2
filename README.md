@@ -50,8 +50,4 @@ Si te gusta lo que hacemos y deseas apoyarnos:
 
 ---
 
-**Educa2**: Porque aprender nunca pasa de moda. 🌟
-
----
-
 🔗 *"La educación es el arma más poderosa que puedes usar para cambiar el mundo." - Nelson Mandela*
